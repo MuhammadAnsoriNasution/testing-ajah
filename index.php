@@ -1,2 +1,2 @@
-iin
-aka
+ansori
+edo
